@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ColdCrypt
+- 👀 I’m interested in ..Hex crypto & Pulsechain.
+- 🌱 I’m currently learning as much as l can about blockchain tech.
+- 💞️ I’m looking to collaborate on anything cool.
+- 📫 How to reach me kentscrypto@protonmail.com
+--->
